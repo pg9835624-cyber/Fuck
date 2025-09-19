@@ -10,3 +10,9 @@ fucking back this 4 country.
 i hate that China Russia India Nortkorea.
 Fucking destroys China wired all their projects and programs.
 Fucking destroys Russia wired all their projects and programs.
+Fire China 
+Fire Russia 
+Fire India 
+Fire Nortkorea 
+I will destroy you all
+i support your opposite site who wanna fights you i must support my techanologys.
