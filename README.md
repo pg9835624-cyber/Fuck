@@ -16,4 +16,4 @@ Fire India
 Fire Nortkorea 
 I will destroy you all
 i support your opposite site who wanna fights you i must support my techanologys.
-fire fire Fuck Fuck FIRE fire fuck 
+fire fire Fuck Fuck FIRE fire fuck 🌒💥🌊🌬🖕
